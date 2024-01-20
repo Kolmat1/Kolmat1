@@ -1,4 +1,3 @@
-Hey je suis Kolmat developer web contacte moi si tu a besoin ! | 💻
+Hey I'm Kolmat web developer contact me if you need! | 💻
 
 👨‍💻 | Dev + Community manager Nuvaweb
-
